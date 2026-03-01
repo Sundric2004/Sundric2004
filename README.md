@@ -2,9 +2,9 @@
 
 I'm **Abdel Derra**  
 
-🎓 Incoming engineering student at **EFREI Paris** – starting the engineering cycle in **September 2025**  
+🎓 Incoming engineering student at **EFREI Paris** – starting the engineering cycle in **September 2026**  
 
-💼 Actively looking for a **36-month apprenticeship** starting **September 2025**  
+💼 Actively looking for a **24-month apprenticeship** starting **September 2025**  
 
 💻 Passionate about **coding**, **data**, and building **smart solutions**  
 
